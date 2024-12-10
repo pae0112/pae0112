@@ -1,1 +1,1 @@
-Here should be written somethink about me or smth :)
+Here should be written something about me or smth :)
